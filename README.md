@@ -1,2 +1,2 @@
 # Hexes
-Download Better End here: https://www.curseforge.com/minecraft/mc-mods/betterend/download/3300748
+Download the pack [here](https://drive.google.com/file/d/17PNpeDXzL_dm4UkIMYGpy-ekuZpNyyK2/view?usp=sharing)
